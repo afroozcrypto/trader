@@ -1,0 +1,2 @@
+# trader
+Entusiasta crypto
